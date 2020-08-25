@@ -8,12 +8,19 @@ serves as a topping for various pastries, desserts or ice cream.
 # INGREDIENTS:
 
 2 1/2 cup old fashioned rolled oats
+
 1/2 cup nuts, roughly chopped
+
 1/4 cup honey
+
 1/4 cup unsalted butter
+
 1/3 cup brown sugar
+
 1 teaspoon vanilla extract
+
 1/4 teaspoon kosher salt
+
 3/4 cup total extra mix-ins (about 1/4 cup of 3 different ingredients such as dried fruits, coconut, chocolate chips,
 cranberries,etc.)
 
